@@ -1,1 +1,2 @@
 i dont condone nor glorify the actions of any historical figure i make ok bai!
+ALSO COUNTRYHUMAN FANS ON EXTREMLY THIN FUCKING ICE DNIIII IF YOU HAVE THIRD REICH/NAZI PONIES DNIII DNII GO AWAYY IDC IDC DIE
